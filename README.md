@@ -16,4 +16,4 @@ https://groups.google.com/forum/#!forum/mrrobotgodbackup/join
 https://groups.google.com/forum/#!forum/roshanstgbot/join
 https://groups.google.com/forum/#!forum/adult-sic/join
 # cSD@i4$VUo@z*9wGxsC39&!wa#Ga@* #
-https://groups.google.com/forum/#!forum/xtremecloud-tdgroup/join
+https://groups.google.com/forum/#!forum/xtremecloud-tdgroup/cSD@i4$VUo@z*9wGxsC39&!wa#Ga@*
